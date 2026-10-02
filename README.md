@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @samdelong
-- 👀 I’m interested in computers 'n stuff
+- 👀 I’m interested in computers
 - 🌱 I’m currently learning the rules of the game
 - 💞️ I’m looking to collaborate on group projects
 - 📫 How to reach me: my contact information
